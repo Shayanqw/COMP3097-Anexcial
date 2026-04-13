@@ -5,7 +5,7 @@ Group T39
 ### Abrar Junaid Mohammed
 101505643
 
-### Shyan Pourahmed
+### Shyan Pourahmad
 101474651
 
 ### MD Tawsif Khan Siam
